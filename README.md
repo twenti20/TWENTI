@@ -1,2 +1,0 @@
-# TWENTI
-TWENTI - 20 Years Old
